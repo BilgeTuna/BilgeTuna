@@ -3,4 +3,5 @@
 ----
 
 
-![Resim Adi](https://i.pinimg.com/originals/5d/58/a2/5d58a267c983b8db15ed627852fda3ea.jpg)
+![Resim Adi](https://user-images.githubusercontent.com/92364036/137005730-c5501771-814e-4e34-8808-7269c5eee208.png)
+
